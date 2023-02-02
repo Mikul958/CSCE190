@@ -1,1 +1,1 @@
-# Mikul958.github.io
+# CSCE190 Assignments from Fall 2022
